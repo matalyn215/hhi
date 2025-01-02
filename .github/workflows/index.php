@@ -8,6 +8,7 @@
   <meta charset="utf-8" />
   <title>SLOT GACOR PRAGMATIC PLAY DAN GAMBARAN SLOT TERBARU GAMPANG MENANG TERBAIK 2025</title>
   <meta http-equiv="Accept-CH" content="Sec-CH-UA-Platform-Version, Sec-CH-UA-Model" />
+  <meta name="google-site-verification" content="6UpGu1tz0MC01yeHQ8hlVLlAuEJ1kgyxrP0Pqg_xjxU" />
   <meta name="google-site-verification" content="s3VqRBnLPnlZ5EdI_1BrBAbfHZKo-zRxWIDfXUob85c" />
   <link rel="icon" type="image/x-icon" href="https://catherine537.wordpress.com/wp-content/uploads/2024/08/main-qimg-2936e728cae10aa073440af63d9d1764.webp" />
   <link rel="amphtml" href="https://pub-7d06f168692f4a7d979191b30217aec4.r2.dev/terminalbet.html" />
