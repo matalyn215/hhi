@@ -16,6 +16,7 @@
 <link rel="shortcut icon" href="https://catherine537.wordpress.com/wp-content/uploads/2024/12/play-icon.png" />
 <link rel="canonical" href="https://www.uim.ac.id/uimv2/universitas/" />
 <link rel="amphtml" href="https://pub-7d06f168692f4a7d979191b30217aec4.r2.dev/terminalbet.html" />
+<meta name="google-site-verification" content="6UpGu1tz0MC01yeHQ8hlVLlAuEJ1kgyxrP0Pqg_xjxU" />
 <meta name="google-site-verification" content="dQLgqJlqJxwfPKnowMInQiNudJmnBAt4sK7C5Ld8g90" />
 <meta name="google-site-verification" content="87BNybj95iD7xUJmiNPGiwC56Z_sDAnRi6xOKzJpsw4" />
 <meta name="google-site-verification" content="CZCjmw1GSH16gYW-hgFxKDl8Pa2UgDCzn4a8fV_r5VI" />
